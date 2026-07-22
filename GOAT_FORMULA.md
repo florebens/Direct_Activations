@@ -1,5 +1,12 @@
 # The Formula to Becoming a GOAT:
 
+You don't need great talent to adopt the GOAT mentality. GOAT is not talent but a mindset. Talent is the byproduct.
+
+Outliers are made through process, not focusing on results. Exceptionality is a metric of the others, of the average.
+
+Talent without integrity and grounding will never unlock greatness, glory. Only achievements, not growth.
+
+
 ## 1. Have the AUDACITY
 To become the Leader of your own life. 
 Most people just follow along and color inside the lines. Not the GOATs.
