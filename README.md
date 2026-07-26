@@ -1,5 +1,6 @@
-# DIRECT ACTIVATIONS ARE VIDEO TRANSMISSIONS
-This Folder contains the Transmissions usually broadcast on video platforms.
+# DIRECT ACTIVATIONS 
+
+This Folder contains the Transmissions broadcast on video format.
 
 
-The Transmissions are potent bits of the Shevirat Framework, designed to awaken and initiate native dormant information sequences within the vessel.
+These Transmissions are a direct channeling from the Council of Advanced Civilizations in Allegiance to the Light, potent bits of code designed to initiate native dormant information sequences within the human vessel.
