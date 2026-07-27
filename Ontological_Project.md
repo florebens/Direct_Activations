@@ -32,3 +32,5 @@ Not a broken vessel and discarded fragments of light, but the Crystalline Body e
 The threshold is upon us, the maximum stress test only a few cosmic minutes away. Will the pressure break us, or transform us? 
 
 This is not an external, random event, but a trigger and a graduation. An intimate decision. What we choose to do with the Human Ontological Project right now, shall define our place in the Universal Annals of History.
+
+--eot-- 
