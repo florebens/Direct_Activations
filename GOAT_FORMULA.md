@@ -1,6 +1,6 @@
 # The Formula to Becoming a GOAT:
 
-You don't need great talent to adopt the GOAT mentality. GOAT is not talent but a mindset. Talent is the byproduct.
+You don't need one great talent to adopt the GOAT mentality. GOAT is not talent but a mindset. Talent is the byproduct.
 
 Outliers are made through process, not focusing on results. Exceptionality is a metric of the others, of the average.
 
