@@ -15,7 +15,7 @@ A spiritual structure that accounts for the suffering and injustice, the rampant
 
 A psychic system model that is truly operational, elegant, cohesive, accessible. An ethical quadrant and sociological foundation to enhance our collective ability to become an Advanced Civilization.
 
-Yes, humans can evolve into a higher echelon of evolution within this lifetime. 
+Yes, humans can ascend into a higher echelon of evolution within this lifetime. 
 
 Transcendence is not for the dead or the saints exclusively, it's the natural state of the human machine operating on specification. 
 
