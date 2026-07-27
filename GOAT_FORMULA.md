@@ -37,7 +37,4 @@ GOATs are easy to tell apart from those who fail upwards because they are consta
 For the true GOATs, the ethical decision making is embedded in their craft.
 It is not an addendum, not an overstructure, but a cornerstone of their standing.
 
----
-**For a breakdown, watch the YouTube video.**
-
-*Go get'em, good luck!*
+--eot--
