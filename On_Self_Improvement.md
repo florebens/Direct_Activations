@@ -79,4 +79,4 @@ Context is data, pain is information.
 Obstacles are placed to conquer resistance. 
 Surrender is the Only Way.
 
--END OF TRANSMISSION-
+--eot-- 
